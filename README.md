@@ -1,1 +1,0 @@
-# mindquipped.solutionwizards.net
